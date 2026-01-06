@@ -1,0 +1,1 @@
+# AP1-EquacoesDiferenciais-2025.2
